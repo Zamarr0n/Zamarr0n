@@ -29,7 +29,10 @@ I'm Emilio Zamarron, a student at Brigham Young University-Idaho interested in s
 
 - Skills:
 - working with teams
-- 
+- Problem-Solving
+- Conflict Resolution
+- Curiosity and Continuous Learning
+- Leadership and Initiative
 
 ## Let's Connect!
 
